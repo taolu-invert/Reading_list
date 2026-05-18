@@ -13,3 +13,4 @@
 | The Wisdom of Crowds | James Surowiecki | [Link](https://www.amazon.com/dp/0385721706) | | |
 | The Wild Robot | Peter Brown | [Link](https://www.amazon.com/dp/0316381993) | | |
 | What's the Big Deal?: Why God Cares about Sex | Stan Jones & Brenna Jones | [Link](https://www.amazon.com/dp/1600060161) | | |
+| The Snowball: Warren Buffett and the Business of Life | Alice Schroeder | [Link](https://www.amazon.com/dp/0553384619) | | |
