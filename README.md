@@ -9,3 +9,4 @@
 | The Sleuth Investor | Avner Mandelman | [Link](https://www.amazon.com/dp/0071481850) | | |
 | The Singularity Is Nearer: When We Merge with AI | Ray Kurzweil | [Link](https://www.amazon.com/dp/0399562788) | | |
 | Conscious Capitalism | John Mackey & Rajendra Sisodia | [Link](https://www.amazon.com/dp/1625271751) | | |
+| Geography Is Destiny: Britain and the World: A 10,000-Year History | Ian Morris | [Link](https://www.amazon.com/dp/0374157278) | | |
