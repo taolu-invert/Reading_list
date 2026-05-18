@@ -10,3 +10,6 @@
 | The Singularity Is Nearer: When We Merge with AI | Ray Kurzweil | [Link](https://www.amazon.com/dp/0399562788) | | |
 | Conscious Capitalism | John Mackey & Rajendra Sisodia | [Link](https://www.amazon.com/dp/1625271751) | | |
 | Geography Is Destiny: Britain and the World: A 10,000-Year History | Ian Morris | [Link](https://www.amazon.com/dp/0374157278) | | |
+| The Wisdom of Crowds | James Surowiecki | [Link](https://www.amazon.com/dp/0385721706) | | |
+| The Wild Robot | Peter Brown | [Link](https://www.amazon.com/dp/0316381993) | | |
+| What's the Big Deal?: Why God Cares about Sex | Stan Jones & Brenna Jones | [Link](https://www.amazon.com/dp/1600060161) | | |
